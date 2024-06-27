@@ -4,5 +4,3 @@
 ----------------------
 😅If I make a mistake, I am sorry...
 ------thanks you------
-
-- 📫 jojinatchanon@gmail.com
