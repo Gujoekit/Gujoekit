@@ -1,5 +1,3 @@
-- 👋 Hi, I’m JOJI..
+Practice Mode To Me
 
-----------------------
-😅If I make a mistake, I am sorry...
-------thanks you------
+----thanks you----
